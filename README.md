@@ -1,4 +1,4 @@
-### Bi destek için starlayın ve YouTube'den KATIL üyesi olun https://youtube.com/ugurkilci 👋
+### Destek için starlayın ve YouTube'den KATIL üyesi olun https://youtube.com/ugurkilci/join 👋
 
 <!--
 **ugurkilci/ugurkilci** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
