@@ -1,4 +1,4 @@
-### Destek için starlayın ve YouTube'den KATIL üyesi olun https://patreon.com/ugur 👋
+### Seri Girişimci. GirisimKur.com'un Kurucusu (Startup Stüdyosu)
 
 <!--
 **ugurkilci/ugurkilci** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
